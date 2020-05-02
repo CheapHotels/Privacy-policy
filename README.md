@@ -1,0 +1,2 @@
+# CheapHotels
+ Privacy Policy
